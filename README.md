@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kaniakhl
+- 👀 I’m interested in UI/UX design
+- 🌱 I’m currently learning on UI Design
+- 📫 You can reach me on linkedin.com/kania-putri-khalilah
